@@ -1,2 +1,2 @@
 # Thoill-Resolusi
-Kono Thoil niwa yumega aru
+Kono Thoill niwa yumega aru
